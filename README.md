@@ -1,5 +1,5 @@
 ### 07-29-2019
-# Kung Pao Beef over Cauliflour Rice
+# Kung Pao Beef over Cauliflower Rice
 
 Tonight for dinner i ate leftover chineese food from last night. I ate kung pao beef which contains beef, peanuts, celery and bamboo shoots in a spicy sauce. I ate the beef on top of cauliflower rice which i prepared from freezer bag.
 
