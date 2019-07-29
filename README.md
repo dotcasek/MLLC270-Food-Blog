@@ -1,6 +1,6 @@
 ## Kung Pao Beef over Cauliflour Rice
 
-![kung pao beef](/img/IMG_3764.JPG)
+![kung pao beef](/img/)
 
 
 ## Sandwich
