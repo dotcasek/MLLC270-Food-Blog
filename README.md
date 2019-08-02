@@ -1,3 +1,21 @@
+## Espresso
+##### 08-01-2019
+
+Coming soon...
+
+![espresso](/img/img_3777.jpg)
+## Chicen and Broccoli with Creamy Caper Sauce
+##### 07-31-2019
+Tonight for dinner I ate chicken breast with a creamy caper sauce and a side of broccoli. I subscribe to a meal delivery service and this is one of the recipes I received this week. I enjoy having meals delivered since it has given me some new ideas for dinner and ingredients. Everything I have gotten so far has been delicious. 
+
+This meal consists of grilled chicken breast marinated in spices, I don’t remember the exact spices used in the marinate but It it contained poppy and sesame seeds and gave the chicken a nice flavor. The pan sauce was prepared by adding sun-dried tomatoes, capers, garlic, cream cheese, and a little water. 
+
+Broccoli was roasted in the oven with parmesan cheese and kalamata olives and served on the side. I generally like to eat more than the portion they provide, so I supplemented this dish with a few extra broccoli crowns I had in the refrigerator. This made the meal a bit more filling. 
+
+The flavors were nice, I enjoyed the creamy salty sauce along with the chicken and the pile of broccoli was very filling. This reminds me of something that could be served in Italy. For some reason the capers, olives and sundried tomato combination reminds me of the Mediterranean. 
+
+I like meals like this during the week since they are healthy and easy to prepare. It also reduces the amount of grocery shopping I have to do so and time I have to spend creating a menu for the week. I am hoping that I can learn a few recipes and techniques that I can use in the future from this service.
+![chicken and broccoli](/img/img_3772.jpg)
 ## Turkey Sandwich with Swiss Cheese
 ##### 07-30-2019
 Today for lunch I ate a turkey sandwich with swiss cheese and mustard. This is what I have pretty much every weekday for lunch. I like to make a sandwich for myself for lunch since I do not always enjoy buying lunch at work or school. It costs less than buying a sandwich at the cafeteria, and I am able to control the quality of ingredients as well as what I put inside the sandwich. Instead of buying a premade sandwich for 6-8 dollars I can buy ingredients for a little over 10-15 dollars and have sandwiches for at least a week. I would say the sandwich is a pretty typical lunch in the United States. 
