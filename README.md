@@ -1,8 +1,8 @@
 ## Espresso
 ##### 08-01-2019
+For breakfast today I just had an espresso. I do not usually eat breakfast during the week. I enjoy coffee but I recently purchased an espresso machine since I enjoy espresso as well. The machine itself is relatively cheap compared to some of the professional models but it does the job. I like my coffee to be rich and not watery tasting. This machine is adjustable to control the volume of water in each shot which I like. Since the espresso pods are premeasured it is helpful to get it the way I like it. I don’t usually add anything to the espresso in the morning and may have 2 if I am feeling the need for some extra caffeine. It us usually quicker to just take the shot of espresso rather than sip on coffee and it helps me get out the door faster in the morning. 
 
-Coming soon...
-
+I also enjoy a cappuccino after work or on the weekends. Many of the espresso pods have Italian sounding names for the variety of different roasts available. There are also capsules called ‘lungo’ which I enjoy, they create a 4 oz espresso much like an americano. I usually make these when I want something more like a coffee, and brewed fresh it is great. I know Italy is well known for their coffee roasting and I like trying different roasts from all over the world, I can not really taste the subtle differences but I am working on it. I also heard that they sell lungo capsules at trader joes and would like to try those and see how they are since I believe they are about half the price. 
 ![espresso](/img/img_3777.jpg)
 ## Chicen and Broccoli with Creamy Caper Sauce
 ##### 07-31-2019
