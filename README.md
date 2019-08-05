@@ -1,3 +1,18 @@
+## Fried Chicken with Mac and Cheese and Brussell Sprouts
+##### 08-01-2019
+coming soon...
+![Fried Chicken](/img/IMG_3792.jpg)
+## Summer Sausage and Polenta
+##### 08-02-2019
+Tonight, I went out for dinner. We went to a restaurant that I like called Deep Ellum. I have not been there in a long time, but I enjoyed going there in the past the food and bar is very good and it has a relaxed atmosphere. I ordered a cocktail called the Brooklyn cocktail. A traditional Manhattan has whiskey vermouth and bitters. This cocktail contained rye whiskey, house made picon, vermouths, maraschino liqueur, and bitters. The maraschino cherry liquor and the picon, which is an aperitif made from citrus, gives the drink a nice sweetness. The drink was diluted in ice and strained into a glass. I am not going to go into detail about how many of these I ordered on this night, but I will say they it was Friday night and they were very good. 
+
+For an appetizer we ordered buffalo wings we were so hungry I forgot to take a picture but they were crispy and spicy and served with ranch and a carrot slaw. For a main course I ordered the ‘wurst plate’ ,which is their seasonal sausage I don’t know what type of sausage it was but it was very tasty. It was served on top of a cheesy polenta and topped with strips of summer squash. The main course is a seasonal dish for the summer, the flavors were light and incorporated in season vegetables such as the zucchini and summer squash. The polenta was also creamy and cheesy and complemented the dish well.
+![Manhattan](/img/IMG_3786.jpg)
+![Sausage and Polenta](/img/IMG_3787.jpg)
+## Ham and Cheese Sandwich
+##### 08-02-2019
+coming soon...
+![Ham and Cheese](/img/IMG_3783.jpg)
 ## Espresso
 ##### 08-01-2019
 For breakfast today I just had an espresso. I do not usually eat breakfast during the week. I enjoy coffee but I recently purchased an espresso machine since I enjoy espresso as well. The machine itself is relatively cheap compared to some of the professional models but it does the job. I like my coffee to be rich and not watery tasting. This machine is adjustable to control the volume of water in each shot which I like. Since the espresso pods are premeasured it is helpful to get it the way I like it. I don’t usually add anything to the espresso in the morning and may have 2 if I am feeling the need for some extra caffeine. It us usually quicker to just take the shot of espresso rather than sip on coffee and it helps me get out the door faster in the morning. 
