@@ -1,5 +1,5 @@
 ## Fried Chicken with Mac and Cheese and Brussell Sprouts
-##### 08-01-2019
+##### 08-04-2019
 coming soon...
 ![Fried Chicken](/img/IMG_3792.jpg)
 ## Summer Sausage and Polenta
