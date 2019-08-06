@@ -1,6 +1,6 @@
-## Fried Chicken with Mac and Cheese and Brussell Sprouts
+## Fried Chicken with Mac and Cheese and Brussel Sprouts
 ##### 08-04-2019
-coming soon...
+Tonight for dinner I made fried chicken with mac and cheese and brussel sprouts. I don’t usually make fried chicken so this was an experiment for me. I know that you have to batter the chicken in flour and beaten egg. So that’s what I based the recipe from. I had about 2 pounds of chicken thighs in the fridge. I have learned most of how to cook from cooking shows so I try to pull up a recipe that I may have seen in my head. I did not have buttermilk or bread crumbs I have made chicken cutlet style fried chicken before like a chicken parm with bread crumbs. I looked up replacements for buttermilk online and it said to use milk and vinegar so I placed the raw chicken in the milk vinegar mix to marinate for a little bit. Meanwhile I prepared an egg wash with beaten eggs hot sauce and water, and flour mixture with various spices I could reach. My girlfriend is also been wanting to eat gluten free, so I used oat flour and oat milk for this. I started breading with egg > flour > egg > flour to get a thicker breading, however I ran out half way through and had to finish the last bit with a single coating. I fried the chicken in about a half inch of oil which I also ran out of I had to mix olive oil and vegetable oil. I did not plan this very well. It ended up being pretty tasty, but I defiantly can refine the recipe. And the oat flavor was a bit strong for my liking. On the side I served roasted brussel sprouts and packaged gluten free / vegan mac and cheese with some ranch on the side. It was pretty good for just winging it, but I would like to try again. I also think I could have pounded out the chicken to make it a more even layer. 
 ![Fried Chicken](/img/IMG_3792.jpg)
 ## Summer Sausage and Polenta
 ##### 08-02-2019
@@ -11,7 +11,9 @@ For an appetizer we ordered buffalo wings we were so hungry I forgot to take a p
 ![Sausage and Polenta](/img/IMG_3787.jpg)
 ## Ham and Cheese Sandwich
 ##### 08-02-2019
-coming soon...
+Today for lunch I ate a ham and cheese sandwich. I ate half before I took a picture. I generally have a sandwich for lunch that I make at home, today I used slices of black forest ham, swiss cheese and dijon mustard on sliced bread. It is a simple and easy lunch to make at home in the morning. There were some leftover chips from a party in the office common area do I spiced things up a bit by adding a few barbecue potato chips. Chips and sandwiches are a great pairing. The crispiness of the potato chip is nice since the sandwich it generally soft since I do not toast the bread. The different textures are nice and the salty chip flavor is nice as well. 
+
+I usually keep the sandwich simple since I prepare it several hours in advance and I do not want it to get soggy or fall apart. Therefore, I usually just stick to meat and cheese and a small amount of condiment. The bread I get is pretty soft and doesn’t require a lot of condiment. If I were to make a sandwich at hoe and eat it fresh I would be more inclined to include vegetables and toast the bread. Lettuce tomato onion and pickles are all valid choices to put inside the sandwich. I also enjoy grilling the sandwich with butter instead of toasting the bread. That is able to warm the sandwich and add a nice buttery flavor. Maybe I will do a post on a grilled sandwich in the future. 
 ![Ham and Cheese](/img/IMG_3783.jpg)
 ## Espresso
 ##### 08-01-2019
