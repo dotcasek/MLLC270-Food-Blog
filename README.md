@@ -1,6 +1,8 @@
 ## Lamb Meatball Shakshuka
 ##### 08-17-2019
-Coming soon...
+Today for lunch I ate lamb meatball shakshuka. This is something they serve at the restaurant where I work on the weekends. I do enjoy this dish and I wanted to include it on the food blog since it is a good example of global cuisine. Shakshuka originated in the North Africa region and has seen a surge in popularity in the United Stated in recent years. The base of dish itself is made from tomatoes stewed in spices and herbs. Eggs are poached in the sauce until the whites are cooked, and the yolks are still runny. This particular variation incorporates spicy lamb meatballs, Aleppo peppers and a spicy labneh sauce. The final dish is topped with parsley. I added feta cheese to it since I like the creaminess of the cheese. Toasted challah bread is served on the side, but I have also had it served with pita at other restaurants.  
+
+I enjoy this dish because it is very filling and has simple ingredients but tons of flavor. The flavor of the sauce is so bold and spicy it is really comforting. It is also great for sharing and can be great to eat while socializing. I enjoy eating shakshuka since it is so different than the normal type of food I eat every day and it makes me feel good when I eat it. It has become increasingly popular and I have been seeing it pop up in restaurants and online, as well as being made on those cooking competition shows on TV.
 ![shak](/img/IMG_3814.jpg)
 ## Fried Chicken with Mac and Cheese and Brussel Sprouts
 ##### 08-04-2019
